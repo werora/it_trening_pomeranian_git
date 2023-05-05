@@ -1,0 +1,1 @@
+# it_trening_pomeranian_git
